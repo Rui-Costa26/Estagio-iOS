@@ -6,6 +6,7 @@ O estágio está a ser orientado da parte da ITSector pelo Thiago Garcia e da pa
 
 
 Contactos:
+
 Rui Costa
 Telemóvel: 916971552
 E-mail: ruipgc26@gmail.com
